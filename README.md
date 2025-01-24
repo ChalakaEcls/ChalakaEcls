@@ -19,7 +19,7 @@ Welcome to my GitHub profile! Here’s a little about me:
 
 - 📫 **How to Reach Me:** 
   - Email: **[chalaka@eclass.lk](mailto:chalaka@eclass.lk)**
-  - LinkedIn: **[Chalaka Nimesh](https://linkedin.com/in/Chalaka)**
+  - LinkedIn: **[Chalaka Nimesh](www.linkedin.com/in/chalaka-nimesh-89794021b)**
 
 - 😄 **Pronouns:** He/Him
   
